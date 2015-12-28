@@ -6,5 +6,5 @@ Chapter_03-Zubereiten.md
 Chapter_A.md
 Chapter_A_Weihnachtschutney.md
 
-Chapter_C_Hauptgerichte.md
-Chapter_C_Hauptgerichte_Krustenbraten.md
+Chapter_C.md
+Chapter_C_Krustenbraten.md
