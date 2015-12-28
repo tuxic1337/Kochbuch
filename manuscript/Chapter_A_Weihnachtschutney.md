@@ -15,6 +15,8 @@
 
 Pflaumen, Birnen, Äpfel, Sellerie, Zwiebeln und Tomaten in kleine Würfel schneiden. Mit dem Ingwer und den Rosinen in einen großen Topf geben. Das Pickling Spice in ein sauberes Stück Baumwollstoff geben und mit einem Bindfaden zuknoten. In den Topf legen. Die Hälfte des Essigs dazu, aufkochen, umrühren und für 2 Stunden köcheln lassen.
 
+Währenddessen Gläser und Deckel sterilisieren. Wenn die Zutaten weich sind, den restlichen Essig sowie den Zucker unterrühren und einkochen lassen, bis eine dickflüssige Konsistenz erreicht ist. 
+
 Das Gewürzsäckchen entfernen und das Chutney in die Gläser füllen, verschließen und abkühlen lassen.
 
 > Das weihnachtliche Chutney eignet sich hervorragend als "Geschenk auf der Küche". Ein hübsches Etikett mit dem Anlass, dem Datum und einem Gruß sind eine schöne Erinnerung an das Essen.
