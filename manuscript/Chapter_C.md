@@ -1,1 +1,1 @@
-# Hauptgerichte
+# Hauptgericht
