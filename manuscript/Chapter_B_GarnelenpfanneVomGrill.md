@@ -1,4 +1,4 @@
-# Garnelenpfanne vom Grill
+## Garnelenpfanne vom Grill
 
 - 1 kg	Garnele(n), geschält oder ungeschält, entsprechend mehr (Menge abhängig davon, ob Vorspeise oder Hauptgericht)
 - 300 ml	Wein, weiß
