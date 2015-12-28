@@ -1,8 +1,8 @@
-# Rosen, aber richtig
+# Richtig Angeben
 
 * Gruß aus der Küche
 
-* Nicht zu viel
+* Nicht zu viel "tolles" in jedem Gang
 
 * was ist besonders4
   - firkassehuhn
@@ -19,7 +19,6 @@ Vorbereitung auf die Technik, Geschichte erzählen
 
 
 
-Posing
 
 Das Kochen ist eine Sache. Das Essen zu präsentieren eine ganz Andere.
 
@@ -35,5 +34,5 @@ Vorspeise aus der Küche. Kleiner Vorgeschmack auf das Essen.
 
 ## Geschenk aus der Küche
 
-entweder 
+Viel Cooler! 
 

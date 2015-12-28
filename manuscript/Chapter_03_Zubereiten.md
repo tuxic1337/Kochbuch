@@ -1,39 +1,11 @@
-# Rosen, aber richtig
+# Zubereiten
 
-* Gruß aus der Küche
+Art der Zubereitung kann etwas besonderes sein.
 
-* Nicht zu viel
+## Schmoren
 
-* was ist besonders4
-  - firkassehuhn
-  - rotkohl?
-  - etwas selbver gemacht statt gekauft?
+## Simmern
 
-* besondere technik bei der Zubereitung
-  - simmern
-  - "reverse"
+## Gillen
 
-
-
-Vorbereitung auf die Technik, Geschichte erzählen
-
-
-
-Posing
-
-Das Kochen ist eine Sache. Das Essen zu präsentieren eine ganz Andere.
-
-
-
-## Gruß aus der Küche
-
-Das Amuse-Gueule
-
-Vorspeise aus der Küche. Kleiner Vorgeschmack auf das Essen.
-
-
-
-## Geschenk aus der Küche
-
-entweder 
-
+## "reverse"
