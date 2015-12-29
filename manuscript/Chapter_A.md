@@ -1,1 +1,1 @@
-# Grüße aus der Küche
+# Gruß aus der Küche
